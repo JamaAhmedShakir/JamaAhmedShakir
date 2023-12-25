@@ -1,4 +1,4 @@
-CyberSecurity Portfolio - AhmedShakir Jama
+CyberSecurity Statement - AhmedShakir Jama
 
 
 As is my obligation as a Cybersecurity Professional, I am dedicated to effectively communicating my strengths in both written and verbal formats.
