@@ -14,7 +14,7 @@ actively seek
 innovative 
 solutions to intricate security challenges, embodying a commitment to ethical practices and cooperative problem-solving.
 
-The dynamic and ever-changing landscape of the cybersecurity field holds a particular fascination for me. I find joy in staying abreast of the 
+The dynamic and ever-changing landscape of the technology field holds a particular fascination for me. I find joy in staying abreast of the 
 latest technologies and trends, embracing continuous learning as a cornerstone of my professional journey. My overarching objective is to leverage my 
 skills, values, and passion for cybersecurity to actively contribute to organizations in achieving their security objectives and safeguarding their valuable 
 assets.
